@@ -1,4 +1,4 @@
-Kenter Alano
+Kenter
 
 HW 1: 
 due date: Feb 21
